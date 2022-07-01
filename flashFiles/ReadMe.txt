@@ -1,0 +1,2 @@
+I aint give out all the flash files yet ngl ya'll can wait but theres you some flash files if you really wanna do whatever with
+these ocs and characters that i made. Tiffany i aint put assets for her im sorry if you want her please ask
